@@ -9,7 +9,9 @@ Riolu.443 精灵学院是一家2023年开业的翻墙机场，机场中独一家
 **访问官网**：点击下方链接进入
 
 [ **Riolu 精灵学院机场官方地址入口1**](http://skyorigin.riolu.ooo/register?aff=sneIzyQn)
+
 [ **Riolu 精灵学院机场官方主域入口2**](https://www.riolu.me/register?aff=sneIzyQn) 
+
 [ **Riolu 精灵学院机场官方地址入口3**](https://cfooo.riolu.ooo/register?aff=sneIzyQn)
 
 **点击注册**：在主页右上角找到并点击“注册”按钮。
